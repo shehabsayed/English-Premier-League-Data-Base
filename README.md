@@ -8,4 +8,4 @@ Doha Sami (Contact : https://www.linkedin.com/in/doha-sami-9603b2288/)
 
 Youssof Husseiny (Contact : https://www.linkedin.com/in/youssof-husseiny-518723286/)
 
-Meral Mostafa (Contact : https://www.linkedin.com/in/meral-mostafa-3b8a972b5?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
+Meral Mostafa (Contact : https://www.linkedin.com/in/meral-mostafa-3b8a972b5/)
